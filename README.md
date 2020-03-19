@@ -1,0 +1,2 @@
+# maniteja
+no
